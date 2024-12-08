@@ -10,3 +10,5 @@ Learn more:
 🔗 Discord:  https://discord.gg/T6VaPSmvuJ
 
 Join us now!
+
+![AELYSPREMIUMM](https://github.com/user-attachments/assets/07d9ad92-22c5-4ecb-b72a-d9d83d861984)
